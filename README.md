@@ -1,0 +1,2 @@
+Hello This is beta so this is NOT THE FULL VERSION I will be adding updates and i have a discord plus a Youtube channel the moment you start the website go all the way down untill you 
+see Youtube Discord those are links thanks and there is a sign in plus log in page but it doesn't work so just press sign in or log in at the start of the web the press sign in now or log in now then bam bam all done thanks!
